@@ -10,3 +10,6 @@
 4 荨麻疹
 
 ![image](https://github.com/user-attachments/assets/1bdf906e-5c1f-4ef0-8a88-d7ec2d012ec8)
+
+
+![image](https://github.com/user-attachments/assets/394dde07-9191-4505-93d1-2d1379c07dad)
